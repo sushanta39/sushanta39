@@ -52,7 +52,7 @@
 ---
 
 ## 🤝 Connect With Me
-- 💼 LinkedIn: https://linkedin.com/in/sushanta mohanty  
+- 💼 LinkedIn: https://linkedin.com/in/sushantamohanty  
 - 💻 GitHub: https://github.com/sushanta39
 - ✉️ Email: sushantamohanty1701s@gmail.com  
 
